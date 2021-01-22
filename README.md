@@ -1,3 +1,5 @@
+![headshot](WIN_20210121_18_33_34_Pro.jpg)
+
 # A little insight into me, Ben Don
 Hi Everyone! My name is Ben Don and I am the author of no books. This README will give you a bit of information about me!
 
