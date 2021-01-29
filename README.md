@@ -10,4 +10,4 @@ I think the future is full of robots and I want to help get us there quickly, sa
 I love learning. I read a lot. I practice the drum set (electric mostly). And for exercise and social interaction, I enjoy cycling.
 
 # My Books
-Many, many.
+Many, many. So many books.
